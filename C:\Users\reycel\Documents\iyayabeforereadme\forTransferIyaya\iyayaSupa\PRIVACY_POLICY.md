@@ -1,0 +1,1 @@
+C:\Users\reycel\Documents\iyayabeforereadme\forTransferIyaya\iyayaSupa\PRIVACY_POLICY.mdC:\Users\reycel\Documents\iyayabeforereadme\forTransferIyaya\iyayaSupa\TERMS_OF_SERVICE.mdC:\Users\reycel\Documents\iyayabeforereadme\forTransferIyaya\iyayaSupa\DATA_DELETION_INSTRUCTIONS.md
